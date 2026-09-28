@@ -1,0 +1,2 @@
+# premium-mirror-silver-001-mirror-silvering-vacuum-coat
+You've perfected the chemistry and mastered the vacuum chamber, but your mirror silvering experiments are buried under sticky notes random files, and forgotten measurements. It's time to turn your craft into a repeatable science.  This Notion template transforms scattered lab notes and trial-and-error logs into a structured workflow, so you can rep
